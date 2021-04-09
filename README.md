@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ongzhongfei
 - 👀 I’m interested in matcha, coffee, coffee, matcha
-- 🌱 I’m currently learning NLP
+- 🌱 I’m currently learning anything and everything
 - 📫 How to reach me ongzhongfei@gmail.com
 
 <!---
